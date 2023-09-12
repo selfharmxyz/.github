@@ -1,4 +1,4 @@
-# SELFHARM.XYZ
+# [SELFHARM.XYZ](https://selfharm.xyz/)
 
 Welcome to SELFHARM.XYZ! This is a website dedicated to providing link-in-bio and other solutions for the everyday person.
 
